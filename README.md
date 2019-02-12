@@ -1,2 +1,0 @@
-# cybersecurityconsultinggroup
-cybersecurityconsultinggroup.com
